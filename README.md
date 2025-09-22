@@ -5,7 +5,7 @@
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-Eric_Stevens-blue?logo=linkedin)](https://www.linkedin.com/) 
 ![Location](https://img.shields.io/badge/Dallas-TX-lightgrey)
 
-**Operator, builder, and bioeconomy strategist.** Mission: make regeneration more profitable than fossil fuels.
+**Operator, builder, author, and bioeconomy strategist.** Mission: make regeneration more profitable than fossil fuels.
 
 ---
 
