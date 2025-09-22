@@ -30,7 +30,7 @@
 - Compliance + incentives packaging for funders
 - AFG/processor diligence, PPM assembly, site selection
 
-**Contact:** eric@… · nowweevolve.com · evolutionmine… (update with your real links)
+**Contact:** eric@esandassociates.com · nowweevolve.com · Americanfibergroup.com · Thebioeconomyfoundation.org · fiberfoundry.co 
 
 ---
 
